@@ -1,0 +1,2 @@
+--// Protected By CuckSec V1 
+function nErTiGeL_ilIilI(VQvAzTyUPVfDFZlOBrfpfqYxuC)local ZXhvRxJqMEhGWZRNeydPKdpWgJ = (5*3-2/8+9*2/9+8*3) end local ZXhvRxJqMEhGWZRNeydPKdpWgJ = (5*3-2/8+9*2/9+8*3) load("\91\91\32\10\112\114\105\110\116\40\34\104\105\32\116\104\105\115\32\105\115\32\97\32\116\101\115\116\34\41\10\32\93\93")() local ZXhvRxJqMEhGWZRNeydPKdpWgJ = (5*3-2/8+9*2/9+8*3) function nErtIgEL_ilIilI(QhsiiHPUMSjuDkkYuPKFTfiqwK)local ZXhvRxJqMEhGWZRNeydPKdpWgJ = (5*3-2/8+9*2/9+8*3) end local ZXhvRxJqMEhGWZRNeydPKdpWgJ = (5*3-2/8+9*2/9+8*3) 
